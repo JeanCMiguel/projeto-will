@@ -1,2 +1,0 @@
-# projeto-will
-meu mozi
